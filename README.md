@@ -115,7 +115,7 @@ I am deeply grateful for the mentorship, structure, and opportunities this progr
 Feel free to connect with me:
 
 * **GitHub:** *(https://github.com/SWE-StaceyL)*
-* **LinkedIn:** *(in/stacey-m-11a6222a)*
+* **LinkedIn:** *(www.linkedin.com/in/stacey-m-11a6222a)*
 
 ---
 
